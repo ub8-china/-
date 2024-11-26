@@ -47,7 +47,7 @@
 <font style="box-sizing: border-box; vertical-align: inherit">玩法多得很，彩票类 棋牌类 电子竞技 
 真人百家乐 体育竞彩 不过在优游还是玩彩票类多，比如时时彩 分分彩 还有11选5</font></p>
 <p dir="auto" style="box-sizing: border-box; margin-top: 0px; margin-bottom: 0px !important; color: rgb(31, 35, 40); font-family: -apple-system, BlinkMacSystemFont, &quot;Segoe UI&quot;, &quot;Noto Sans&quot;, Helvetica, Arial, sans-serif, &quot;Apple Color Emoji&quot;, &quot;Segoe UI Emoji&quot;; font-size: 16px; font-style: normal; font-variant-ligatures: normal; font-variant-caps: normal; font-weight: 400; letter-spacing: normal; orphans: 2; text-align: start; text-indent: 0px; text-transform: none; widows: 2; word-spacing: 0px; -webkit-text-stroke-width: 0px; white-space: normal; background-color: rgb(255, 255, 255); text-decoration-thickness: initial; text-decoration-style: initial; text-decoration-color: initial;">
-<font style="box-sizing: border-box; vertical-align: inherit">本文链接：</font><a style="box-sizing: border-box; background-color: transparent; color: var(--fgColor-accent, var(--color-accent-fg)); text-decoration: underline; text-underline-offset: 0.2rem;" href="https://github.com/tianyakk/binance_reg_1"><font style="box-sizing: border-box; vertical-align: inherit">https://github.com/tianyakk/binance_reg_1</font></a></p>
+<font style="box-sizing: border-box; vertical-align: inherit">本文链接：</font><a style="box-sizing: border-box; background-color: transparent; color: var(--fgColor-accent, var(--color-accent-fg)); text-decoration: underline; text-underline-offset: 0.2rem;" href="[https://github.com/ub8-china/-]"><font style="box-sizing: border-box; vertical-align: inherit">[https://github.com/ub8-china/-]</font></a></p>
 
 </body>
 
